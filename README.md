@@ -16,4 +16,14 @@
 
 # ♥️ cd fb_m
 
-# ♥️ python okay.py
+# ♥️ python Okay.py
+
+####################################
+
+♥️ #BISMILAH SEMOGA ADA ORANG BAIK MAU DONASI VIA TREE♥️
+
+NOMER ♥️#+62895422818801#♥️
+
+Whatssap Admin 
+
+♥️+62 895-4228-18801♥️
